@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: anything you can help me in.
 - 📫 How to reach me: don't. But I'm @gabilamira on Instagram.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: 
+- ⚡ Fun fact: first thing that comes to mind when I see a ⚡ is Harry Potter, such a great book series isn't it? 
 
 <!---
 GabiLamira/GabiLamira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
